@@ -12,11 +12,19 @@ Best Snacks on this Planet:
 1. Cheeto Puffs
 2. Pringles
 3. Spicy Doritos 
+4. pretzels
 
 Why should I go to Bitcamp?
 - It is so much fun!
 - Both of my TAs will be there
 - Who Doesn't love some free merch :) 
+- Bitcamp is amazing
+
+1. hello
+2. world
+
+- one
+- two
 
 **WOOO HOOO ITS FRIDAY!** <br />
 *Markdown Rules!* <br />
