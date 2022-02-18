@@ -18,5 +18,10 @@ Why should I go to Bitcamp?
 - Both of my TAs will be there
 - Who Doesn't love some free merch :) 
 
+**WOOO HOOO ITS FRIDAY!** <br />
+*Markdown Rules!* <br />
+![image](/hula-dancer-octo-cat.gif)
+
+
 
 
